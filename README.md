@@ -1,5 +1,4 @@
 # KUNAL
-sATYAM BSDK
-vAIBHAV KI MKC
-MU MEI LE
-SHAMBHO
+sATYAM is my son 
+rahul is my grand son
+
